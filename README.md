@@ -16,7 +16,7 @@ I love to come alongside organisations, business and indivduals to build bespoke
 
 I am currently studying with Mission Ready HQ in Auckland and working with Foodstuffs NZ in a programmer capacity.
 
-I also freelance my creative skills to multiple organisations, business and people around my local area.
+I also freelance my wide range of creative skills to multiple organisations, business and individuals around my local area.
 
 ### Here's How You Can Reach Me
 - **LinkedIn:** [linkedin.com/jene-hamahona]([https://www.linkedin.com/in/jenehamahona/](https://www.linkedin.com/in/jene-hamahona/))
