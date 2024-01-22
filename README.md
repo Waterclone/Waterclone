@@ -2,7 +2,7 @@
 
 I'm a Full Stack developer based in Tauranga, New Zealand.
 
-I love to come alongside organisations, business and indivduals to build bespoke web and app solutions.
+I love to come alongside organisations, business and individuals to build bespoke web and app solutions.
 
 ### Skills and Expertise
 
